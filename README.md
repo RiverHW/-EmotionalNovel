@@ -1,8 +1,8 @@
-# EmotionalNovel
+# AntNovel
 
-Enjoy Sweet Love: Introduction to the Emotional Novel Romance Novel App
+Enjoy Sweet Love: Introduction to the Ant Novel App
 
-In the busy and hustle-bustle modern life, are you longing for a romantic encounter that touches your heart? Do you look forward to immersing yourself in beautiful and moving love stories and forgetting the troubles of the earthly world? The [APP Name] Romance Novel App is created precisely to fulfill all your fantasies about love.
+In the busy and hustle-bustle modern life, are you longing for a romantic encounter that touches your heart? Do you look forward to immersing yourself in beautiful and moving love stories and forgetting the troubles of the earthly world? The [ant novel] Romance Novel App is created precisely to fulfill all your fantasies about love.
 
 A Vast Selection, Encountering Diverse Loves: It gathers a vast number of romance novel resources carefully crafted by renowned authors and emerging writers from all over the world, covering various popular genres such as ancient-style romance, modern urban, campus youth, and fantasy immortal cultivation. Whether you are fond of the delicate emotions between talented scholars and beautiful ladies in ancient times, or are passionate about the love and hatred entanglements of men and women in modern cities; whether you yearn for the innocent first love on campus or are obsessed with the cross-world love in the fantasy world, here, you can accurately find the excellent work that suits your taste and embark on a unique reading journey.
 
